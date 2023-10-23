@@ -4,4 +4,4 @@
 - estudo e trabalho.
 - gosto de ouvir música, dormir e jogar vôlei com meus amigos (a partr triste foi quebrar o dedo jogando).
 - 🤙🏼😼
-- ![](https://giphy.com/gifs/shaun-the-sheep-movie-not-my-gif-2016-oscar-nominations-tIeCLkB8geYtW)
+- ![](https://media.tenor.com/3yqz6qS6pcMAAAAC/emoji-thumbs-up.gif)
